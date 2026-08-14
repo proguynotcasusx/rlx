@@ -1,3 +1,3 @@
-x1HZZuYGkhipJ0XI //Suskun068
-LcapFmHPpmtOC/mz //suskun068
+x1HZZuYGkhipJ0XI
+LcapFmHPpmtOC/mz
 60GGwQZQhMEETZ3e //cetincant
